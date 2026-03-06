@@ -24,6 +24,7 @@ https://medium.com/@shanivideo482/chrome-hearts-kids-fashion-redefining-modern-s
 
 LinkedIn Post:  
 https://www.linkedin.com/posts/shani-video-b520893b4_streetwear-fashion-isnt-just-for-adults-activity-7433259195899985920-ksUZ
+https://www.linkedin.com/feed/update/urn:li:share:7435551926210965504/
 
 Pinterest Inspiration:  
 https://www.pinterest.com/pin/1102959765008556462/
@@ -34,3 +35,8 @@ https://sites.google.com/view/ogstreetwear/
 ---
 
 Streetwear fashion continues to evolve, blending luxury aesthetics with casual comfort. Chrome Hearts inspired styles remain among the most recognizable in modern fashion culture.
+
+About me Influence:
+
+https://about.me/ch21/
+
