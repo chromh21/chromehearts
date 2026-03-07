@@ -25,6 +25,7 @@ https://medium.com/@shanivideo482/chrome-hearts-kids-fashion-redefining-modern-s
 LinkedIn Post:  
 https://www.linkedin.com/posts/shani-video-b520893b4_streetwear-fashion-isnt-just-for-adults-activity-7433259195899985920-ksUZ
 https://www.linkedin.com/feed/update/urn:li:share:7435551926210965504/
+https://www.linkedin.com/posts/shani-video-b520893b4_activity-7435913959444054017-Pf98?utm_source=share&utm_medium=member_desktop&rcm=ACoAAGUaSy4Bxbjy-yFaTud7FibtYgdm3RwucGc
 
 Pinterest Inspiration:  
 https://www.pinterest.com/pin/1102959765008556462/
