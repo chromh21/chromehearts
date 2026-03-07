@@ -41,3 +41,6 @@ About me Influence:
 
 https://about.me/ch21/
 
+Notion: 
+
+https://www.notion.so/Designer-Chrome-Hearts-Jacket-The-Icon-of-Luxury-Streetwear-31c345ecfd9b8071a94dca1d958a9b62
