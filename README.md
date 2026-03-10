@@ -48,3 +48,7 @@ https://www.notion.so/Designer-Chrome-Hearts-Jacket-The-Icon-of-Luxury-Streetwea
 Issue:
 
 https://issuu.com/fashionpro
+
+pearltrees:
+
+https://www.pearltrees.com/designerchromeheartsjacket/item784631385
