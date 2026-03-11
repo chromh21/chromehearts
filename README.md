@@ -52,3 +52,7 @@ https://issuu.com/fashionpro
 pearltrees:
 
 https://www.pearltrees.com/designerchromeheartsjacket/item784631385
+
+carrd.co:
+
+https://chrome21.carrd.co/
