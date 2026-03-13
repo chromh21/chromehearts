@@ -21,6 +21,7 @@ https://chromehearts21.com/
 Medium Article:  
 https://medium.com/@shanivideo482/chrome-hearts-kids-clothing-stylish-streetwear-for-the-new-generation-169152226518
 https://medium.com/@shanivideo482/chrome-hearts-kids-fashion-redefining-modern-streetwear-style-ebf8beec4bac
+https://medium.com/@shanivideo482/why-everyone-loves-the-dandy-worldwide-hoodie-bd174776225f
 
 LinkedIn Post:  
 https://www.linkedin.com/posts/shani-video-b520893b4_streetwear-fashion-isnt-just-for-adults-activity-7433259195899985920-ksUZ
