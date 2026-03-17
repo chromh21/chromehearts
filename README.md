@@ -65,3 +65,7 @@ https://chrome21.carrd.co/
 Tumblr:
 
 https://www.tumblr.com/chromeh21
+
+Blogger:
+
+https://www.blogger.com/blog/post/edit/preview/1528221533610164106/2729330759071208503
