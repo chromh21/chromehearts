@@ -62,6 +62,10 @@ carrd.co:
 
 https://chrome21.carrd.co/
 
+linktr.ee
+
+https://linktr.ee/shanivideo482
+
 Tumblr:
 
 https://www.tumblr.com/chromeh21
