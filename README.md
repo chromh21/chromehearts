@@ -77,3 +77,7 @@ https://www.blogger.com/blog/post/edit/preview/1528221533610164106/2729330759071
 Quara:
 
 https://www.quora.com/profile/CH-21-4
+
+Gravatar:
+
+https://gravatar.com/shanivideo482
