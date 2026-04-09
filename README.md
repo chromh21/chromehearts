@@ -81,3 +81,7 @@ https://www.quora.com/profile/CH-21-4
 Gravatar:
 
 https://gravatar.com/shanivideo482
+
+Chrome hearts hoodie size guide:
+
+https://chromehearts21.com/chrome-hearts-hoodie-sizing-guide/
