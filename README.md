@@ -85,3 +85,7 @@ https://gravatar.com/shanivideo482
 Chrome hearts hoodie size guide:
 
 https://chromehearts21.com/chrome-hearts-hoodie-sizing-guide/
+
+Chrome hearts jacket	
+
+https://chromehearts21.com/jacket/
