@@ -15,7 +15,8 @@ https://chromehearts21.com/chrome-hearts-kids/
 
 - Official Website  
 https://chromehearts21.com/
-
+# chrome hearts jewelry
+https://chromehearts21.com/jewelry/
 ## Fashion Articles & Resources
 
 Medium Article:  
